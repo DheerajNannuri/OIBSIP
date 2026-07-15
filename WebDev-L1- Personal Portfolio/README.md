@@ -82,4 +82,4 @@ https://linkedin.com/in/nannuri-dheeraj
 
 ---
 
-⭐ Thank you for visiting my portfolio repository.
+⭐ Thank you for visiting my portfolio.
